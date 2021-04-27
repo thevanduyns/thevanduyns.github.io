@@ -1,6 +1,6 @@
 ## Welcome to GitHub Pages
 
-<img align="left" margin-right="100px" width="25%" src="/images/IMG_0136.jpg" class="fred"> Fred? You can use the arbdedjfkdl. fjdkla lala j jfdkla fjdkla  fjdka d jfdklafda
+<img align="left" width="25%" src="/images/IMG_0136.jpg" class="image-left"> Image Left! You can use the arbdedjfkdl. fjdkla lala j jfdkla fjdkla  fjdka d jfdklafda
 djfklal fjkdlalld j fjdkld a fjdkal;uqprijcmm jfkddlald 
 djfklda 
 dhfldjlfdajfa]f
