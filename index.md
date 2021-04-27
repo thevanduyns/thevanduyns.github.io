@@ -1,11 +1,10 @@
 ## Welcome to GitHub Pages
 
-<img align="right" src="/images/IMG_0136.jpg" class: "image-left", style: { width: 25% } /> You can use the arbdedjfkdl. fjdkla lala j jfdkla fjdkla  fjdka d jfdklafda
+<img align="left" width="25%" src="/images/IMG_0136.jpg"> You can use the arbdedjfkdl. fjdkla lala j jfdkla fjdkla  fjdka d jfdklafda
 djfklal fjkdlalld j fjdkld a fjdkal;uqprijcmm jfkddlald 
 djfklda 
 dhfldjlfdajfa]f
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
 ### Markdown
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
