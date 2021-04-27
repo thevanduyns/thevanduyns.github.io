@@ -1,6 +1,6 @@
 ## Welcome to GitHub Pages
 
-[![We Flew A Lot](/images/flying-around.jpg)]{: .image-left }You can use the arbdedjfkdl. fjdkla lala j jfdkla fjdkla  fjdka d jfdklafda
+<img align="right" src="/images/IMG_0136.jpg" class: "image-left", style: { width: 25% } /> You can use the arbdedjfkdl. fjdkla lala j jfdkla fjdkla  fjdka d jfdklafda
 djfklal fjkdlalld j fjdkld a fjdkal;uqprijcmm jfkddlald 
 djfklda 
 dhfldjlfdajfa]f
