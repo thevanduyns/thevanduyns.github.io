@@ -47,14 +47,11 @@ In addition to Angel Flight service, Mitch is Vice President of our parish, and 
 
 ## Arrivals and Departures
 
-Sadly, death has claimed a number of our loved ones in the past two years.  Our dear friend Brian Bueche, one of our groomsmen and a hiking buddy of Mitch's since 1976, succumbed to a heart attack in December 2019.  Jan's beloved cousin Mike Janik, after successful lung transplant surgery, contracted an infection and passed away in August 2019.   Maggie
-+ Father Ken
-+ Father David
-+ Mike
-+ Connor, Jess, Jovi
-+ Garsevon ?
-+ Lily
-+ Brian
+Departures: Sadly, death has claimed a number of our loved ones in the past two years.  Brian Bueche, one of our groomsmen and a hiking buddy of Mitch's since 1976, succumbed to a sudden heart attack in December 2019.  Jan's beloved cousin Mike Janik, after successful lung transplant surgery in late 2019, contracted an infection and passed away in August 2019. Two young men, children of families close to our hearts, died in their 20's these past two years.  And last, our sweet dog Lily, companion of over 12 years, had to be euthanized in September 2020 following a cancer diagnosis. We miss all these dear ones and commend them to the Lord, whose Resurrection we are celebrating.
+
+Arrivals: Joyfully, we continue to expand our family of godchildren and grand godchildren. We have welcomed Adam Shellard, Christopher Jones,  and Connor and Jovi DeFehr to our faith family.  Additionally, our godchildren Joe and Kelly Kirtland welcomed daughter Maggie in April 2019 (she is almost TWO). We are blessed beyond measure by the presence of all these wonderful young people in our lives. 
+Additionally (yes, pun intended, sorry) our CatPrint family has been expanded by the addition of four new Kitten Printers in the past two years.  We can't wait to have a company get-together with all these little ones.  
+
 
 ## Congratulations
 
