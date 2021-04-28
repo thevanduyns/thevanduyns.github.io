@@ -1,38 +1,50 @@
-## Welcome to GitHub Pages
+## Dancing
 
-<img align="left" width="25%" src="/images/IMG_0136.jpg" class="image-left"> Image Left! You can use the arbdedjfkdl. fjdkla lala j jfdkla fjdkla  fjdka d jfdklafda
-djfklal fjkdlalld j fjdkld a fjdkal;uqprijcmm jfkddlald 
-djfklda 
-dhfldjlfdajfa]f
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-### Markdown
+<img align="left" width="30%" src="/images/dance-shot.jpg" class="image-left"> Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+## Flying
 
-```markdown
-Syntax highlighted code block
+<img align="left" width="30%" src="/images/IMG_0136.jpg" class="image-left"> Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
 
-# Header 1
-## Header 2
-### Header 3
+## Printing
+<img align="right" width="30%" src="/images/catprint-factory-floor.jpg" class="image-right"> Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
 
-- Bulleted
-- List
+## Traveling
 
-1. Numbered
-2. List
+<img align="right" width="30%" src="/images/new-years-2020.jpg" class="image-right"> Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
 
-**Bold** and _Italic_ and `Code` text
 
-[Link](url) and ![Image](src)
-```
+## Building
+Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
+## Hiking
 
-### Jekyll Themes
+<img align="left" width="30%" src="/images/hiking.jpg" class="image-left"> Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/thevanduyns/thevanduyns.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+<img width="100%" src="/images/vanhovenburg-panaroma.jpg">
 
-### Support or Contact
+## Serving
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+<img align="left" width="30%" src="/images/st-tikhons-sunset.jpg" class="image-left"> Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
+
+
+## Arrivals and Departures
+
++ Mike
++ Garsevon ?
++ Lily
++ Brian
++ Father Ken
++ Father David
++ Connor, Jess, Jovi
++ Adam, Michelle
++ Teddy ? Maggie
+
+## Congratulations
+
++ Paul
++ Isaac
++ Audrey
++ Terry ?
++ 
+
