@@ -1,4 +1,4 @@
-Once again we just didn't get around to writing a Christmas letter this year or last, so we decided to send out a Pascha Letter.  Pascha is the ancient term for Easter and comes from the Jewish Passover which is fullfilled in the crucifixion and resurrection of Jesus.  Perfect.  But even with an extra 4 months we still didn't get the letter written on time to print it, so here it is online!
+Once again we just didn't get around to writing a Christmas letter this year or last, so we decided to send out a Pascha Letter.  Pascha is the ancient term for Easter and comes from the Jewish Passover which is fullfilled in the crucifixion and resurrection of Jesus.  Which we sometimes celebrate after western Easter, giving us an additional 5 weeks. Perfect.  But even with an extra 4 months we still didn't get the letter written on time to print it, so here it is online!
 
 Its been a big couple of years for all of us, and I don't think we can keep straight what happened when, so here are the highlights organized by subject matter.
 
