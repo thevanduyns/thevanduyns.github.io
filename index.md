@@ -15,11 +15,13 @@ Can you dance during a pandemic?  Well, sure!  Even though planned competitions 
 
 Mitch is now a part owner, with three other pilots, of two airplanes (So he owns...half a plane?) and he got his multi-engine rating back at the end of 2019.  During COVID he has been able to continue to serve folks in need of medical transportation with Angel Flights, and has now completed over 50 Angel Flight missions.  Also he has taken family and friends for much-needed breaks on day trips, and flown several trips to the Adirondacks to hike and ski. He also is Jan's private transport service to her new job in Pennsylavania, and to meetings in NYC (more on this later.) 
 
-<img align="right" width="30%" src="/images/catprint-factory-floor.jpg" class="image-right">
+<img align="right" width="40%" src="/images/catprint-factory-floor.jpg" class="image-right">
 
 ## Printing
 
 The good news about CatPrint is that in February 2020 we took possession of our very own facility, with over double the space of our previous quarters. The bad news is that in March 2020, sales plummeted to less than half of our pre-pandemic volume, and have remained very low for the last year.  Consequently we were forced to put over half our faithful employees on furlough. We are slowly rebuilding both our sales and our team.  Due to the hard work and dedication of our remaining employees, we have kept our spirits up and the company afloat.  Thanks to God for all things.
+
+By the way we hope to see more of your Christmas Cards and Invitations printed by CatPrint.  Visit our website [www.catprint.com](https://www.catprint.com) today, and if you would like a "Family and Friends" discount just let us know.  We are proud that we are the highest rated online print company in the world.
 
 <img align="right" width="30%" src="/images/new-years-2020.jpg" class="image-right">
 
@@ -27,12 +29,12 @@ The good news about CatPrint is that in February 2020 we took possession of our 
 
 Travelling?  What's THAT?  Well, since it's been over two years since we have communicated, we can talk about 2019, which featured quite a bit of travel.  We had two highly enjoyable outings with our long-standing friends Dave and Kathy Lester, first to the Shaw Festival in June 2019, and then to New Orleans for New Year's 2020.  Jan cruised down the Elbe river with another long-standing friend, Cindy Politowicz, and we went to a lovely Mackinac Island wedding for Jan's second cousins Liam and Kristy Moll.  Liam is the son of Jan's cousin Leslie Moll. Finally we went to Seattle to see son Bill, daughter-in-law Shana and grandson Luca - and the Rolling Stones! And since then it's been to the cabin, and ....to the cabin. Work travel for Jan involves a once a month trip to Scranton PA, but that's not for fun so it doesn't count.  But soon!  We will begin to see the world again.
 
-<img align="left" width="30%" src="/images/blasting-action.gif" class="image-left"> 
+<img align="left" width="40%" src="/images/blasting-action.gif" class="image-left"> 
 
 ## Building
 Buidling efforts have centered on our cabin in the Adirondacks.  Since we knew that many in our family would want to be there more during winter 2020, we started with a big upgrade to our driveway.  Until now this has been impassable during the winter months, requiring snowshoes to access the place.  We are also doing site work in preparation for a big expansion project in winter 2021.  The site work has been quite exciting, involving big (BIG) machinery and three days of blasting.  Yes, you read that right - BLASTING.  Huge drills, actual dynamite, ignition switches, fuses and explosions.  The explosions are damped by enormous rubber mats, but still there are big booms and flying dirt.  Exciting is definitely the word.  
 
-<img align="left" width="30%" src="/images/hiking.jpg" class="image-left"> 
+<img align="left" width="40%" src="/images/hiking.jpg" class="image-left"> 
 
 ## Hiking
 Mitch has started hiking again in a big way.  Years ago we both started the journey to being "Adirondack 46'ers," people who have hiked up all the mountains in New York which are over 4,000 feet high. (Note: four of these actually aren't over 4,000 feet due to surveying errors, but you still climb them.) What with kids, work, and other life events, it's been years since any mountains were climbed.  This past year Mitch restarted this quest, and has now been up over half of these peaks.  He also climbed nine smaller mountains this winter- yes in the winter! - to become a Lake Placid Niner.  Coffee the dog has been a good companion on these outings, and even has his own backpack now.  
@@ -65,7 +67,7 @@ Congratulations to daughter-in-law Terry on her new position at Kickstarter as a
 
 Congratulations to son Isaac, (Terry's husband) on his promotion to Staff User Experience Manager at Google.  He manages a couple of different teams on two coasts who design how the world experiences Google. His previously heavy travel schedule of over six months per year was eliminated in 2020, one good side effect of COVID.
 
-Also congratulations to Paul and Isaac as founding members and managers of one of the largest and highly rated gaming clubs in NYC - The Carcosa Club - with a several year waiting list just to get in.
+Also congratulations to Paul and Isaac as founding members and officers of one of the largest and highly rated gaming clubs in NYC - The Carcosa Club - with a several year waiting list just to get in. [The Carcosa Club](https://www.carcosaclub.com/)
 
 Many congratulations to our son Bill for starting his own metalworking business, Seiji Fabrications, in 2019, and keeping it afloat and growing during the last two years. 
 
