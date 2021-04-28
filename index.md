@@ -14,31 +14,29 @@ Can you dance during a pandemic?  Well, sure!  Even though planned competitions 
 
 ## Flying
 
- Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
+Flying, too, has been limited but not gone from our lives.  Mitch is now a part owner, with three other pilots, of two airplanes (So he owns...half a plane?) He has been able to serve folks in need of medical transportation with Angel Flights, and has taken friends for much-needed breaks on day trips, and several trips to the Aidrondacks to hike and ski. He also is Jan's private transport service to her new job in Pennsylavania (more on this later.) 
 
 <img align="right" width="30%" src="/images/catprint-factory-floor.jpg" class="image-right">
 
 ## Printing
-The good news about CatPrint is that in February 2020 we took possession of our very own facility, with over double the space of our previous quarters. The bad news is that in March 2020, sales plummeted to less than half of our pre-pandemic volume, and have remained very low for the last year.  Consequently we were forced to put over half our faithful employees on furlough. Many of them were thankfully able to find other positions over the last year, and we are slowly rebuilding both our sales and our team.  Due to the hard work and dedication of our remaining employees, we have kept our spirits up and the companya afloat.  Thanks to God for all things.
+The good news about CatPrint is that in February 2020 we took possession of our very own facility, with over double the space of our previous quarters. The bad news is that in March 2020, sales plummeted to less than half of our pre-pandemic volume, and have remained very low for the last year.  Consequently we were forced to put over half our faithful employees on furlough. We are slowly rebuilding both our sales and our team.  Due to the hard work and dedication of our remaining employees, we have kept our spirits up and the company afloat.  Thanks to God for all things.
 
 
 <img align="right" width="30%" src="/images/new-years-2020.jpg" class="image-right">
 
 ## Traveling
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
+Travelling?  What's THAT?  Well, since it's been over two years since we have communicated, we can talk about 2019, which featured quite a bit of travel.  We had two highly enjoyable outings with our long-standing friends Dave and Kathy Lester, first to the Shaw Festival in June 2019, and then to New Orleans for New Year's 2020.  Jan cruised down the Elbe river with another long-standing friend, Cindy Politowicz, and we went to a lovely Mackinac Island wedding for Jan's second cousins Liam and Kristy Moll.  Liam is the son of Jan's cousin Leslie Moll. Finally we went to Seattle to see son Bill, daughter-in-law Shana and grandson Luca - and the Rolling Stones! And since then it's been to the cabin, and ....to the cabin. Work travel for Jan involves a once a month trip to Scranton PA, but that's not for fun so it doesn't count.  But soon!  We will begin to see the world again.
 
 <img align="left" width="30%" src="/images/blasting-action.gif" class="image-left"> 
 
 ## Building
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
+Buidling efforts have centered on our cabin in the Adirondacks.  Since we knew that many in our family would want to be there more during winter 2020, we started with a big upgrade to our driveway.  Until now this has been impassable during the winter months, requiring a snowhsoes to access the place.  We are also doing work to the site in preparation for a big expansion project in winter 2021.  The site work has been quite exciting, involving big (BIG) machinery and three days of blasting.  Yes, you read that right - BLASTING.  Huge drills, actual dynamite, ignition switches and explosions.  The explosions are damped by enormous rubber mats, but still there are big booms and flying dirt.  Exciting is definitely the word.  
 
 <img align="left" width="30%" src="/images/hiking.jpg" class="image-left"> 
 
 ## Hiking
-
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
-
+Mitch has started hiking again in a big way.  Years ago we both started the journey to being "Adirondack 46'ers," people who have hiked up all the mountains in New York which are over 4,000 feet high. (Note: four of these actually aren't over 4,000 feet due to surveying errors, but you still climb them.) What with kids, work, and other life events, it's been years since any mountains were climbed.  This past year Mitch restarted this quest, and has now been up over half of these peaks.  He also climbed nine smaller mountains this winter- yes in the winter! - to become a Lake Placid Niner.  Coffee the dog has been a good companion on these outings, and even has his own backpack now.  
 <img width="100%" src="/images/vanhovenburg-panaroma.jpg">
 
 <img align="left" width="30%" src="/images/st-tikhons-sunset.jpg" class="image-left"> 
