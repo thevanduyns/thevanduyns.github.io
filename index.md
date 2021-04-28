@@ -54,13 +54,14 @@ Additionally (yes, pun intended, sorry) our CatPrint family has been expanded by
 
 ## Congratulations
 We ask you to join us in congratulating our family on their many accomplishments. Otherwise known as bragging on the kids. We are proud of them!  
-Congratulations are first in order for our youngest family member, Luca, who started kindergarten this year.  It's been a weird way to start school but he is doing well. 
-BIG congratulations to daughter-in-law Audrey - graduating from Fordham Law School with high honors, and passing the New York Sate Bar exam on her first sitting.  Wow. 
+Congratulations are first in order for our youngest family member, Luca, who started kindergarten this year.  It's been a weird way to start school but he is doing well.
+BIG congratulations to daughter-in-law Audrey - graduating from Fordham Law School with high honors, and passing the New York Sate Bar exam on her first sitting.  Wow.  She now works at a major law firm in NYC.
 Congratulations to son Paul, (Audrey's husband) on his new position at Google as a Drive Frontend Software Engineer. Last time we wrote a newsletter, he was still commuting to Boston for work.  Now he and Audrey are Manhattanites, living on 48th Street in the middle of the city.  They look forward to more big city life as the pandemic eases.
 Congratulations to daughter-in-law Terry on her new position at Kickstarter as a Senior Product Manager. Despite its national reputation Kickstarter is actually a pretty small company, and Terry is enjoying the work and the company very much. 
-Congratulations to son Isaac, (Terry's husband) on his promotion to Staff User Experience Manager at Google.  He manages a couple of diffent teams on two coast who design how the world experiences Google. His previously heavy travel schedule of over six months per year was eliminated in 2020, one good side effect of COVID.  
+Congratulations to son Isaac, (Terry's husband) on his promotion to Staff User Experience Manager at Google.  He manages a couple of different teams on two coasts who design how the world experiences Google. His previously heavy travel schedule of over six months per year was eliminated in 2020, one good side effect of COVID.
+Also congratulations to Paul and Isaac as founding members and managers of one of the largest and highly rated gaming clubs in NYC - The Carcosa Club - with a several year waiting list just to get in.
 Many congratulations to our son Bill for starting his own metalworking business, Seiji Fabrications, in 2019, and keeping it afloat and growing during the last two years.  
-And finally, congratulations to Matt Bueche, who married the beautiful and talented Nora in October 2020, and to godson Adam Shellard on his Mary 2020 marriage to Michelle, soon to be family medicine doctor here in Rochester.  Both were lovely outdoor occasions which brought much joy to all participants. 
+And finally, congratulations to Matt Bueche, who married the beautiful and talented Nora in October 2020, and to godson Adam Shellard on his May 2020 marriage to Michelle, soon to be a family medicine doctor here in Rochester.  Both were lovely outdoor occasions which brought much joy to all participants. 
 
 We thank God for each of you being in our lives.  Please accept our heartfelt thanks to ALL of you for your friendship, prayers, and support during the tough times, and for sharing with us in the good times. With much love we say - Christ is Risen!  Indeed He is Risen!
 
