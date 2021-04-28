@@ -14,7 +14,7 @@ Can you dance during a pandemic?  Well, sure!  Even though planned competitions 
 
 ## Flying
 
-Flying, too, has been limited but not gone from our lives.  Mitch is now a part owner, with three other pilots, of two airplanes (So he owns...half a plane?) He has been able to serve folks in need of medical transportation with Angel Flights, and has taken friends for much-needed breaks on day trips, and several trips to the Aidrondacks to hike and ski. He also is Jan's private transport service to her new job in Pennsylavania (more on this later.) 
+Flying, too, has been limited but not gone from our lives.  Mitch is now a part owner, with three other pilots, of two airplanes (So he owns...half a plane?) He has been able to serve folks in need of medical transportation with Angel Flights, has taken friends for much-needed breaks on day trips, and flown several trips to the Aidrondacks to hike and ski. He also is Jan's private transport service to her new job in Pennsylavania (more on this later.) 
 
 <img align="right" width="30%" src="/images/catprint-factory-floor.jpg" class="image-right">
 
@@ -31,7 +31,7 @@ Travelling?  What's THAT?  Well, since it's been over two years since we have co
 <img align="left" width="30%" src="/images/blasting-action.gif" class="image-left"> 
 
 ## Building
-Buidling efforts have centered on our cabin in the Adirondacks.  Since we knew that many in our family would want to be there more during winter 2020, we started with a big upgrade to our driveway.  Until now this has been impassable during the winter months, requiring a snowhsoes to access the place.  We are also doing work to the site in preparation for a big expansion project in winter 2021.  The site work has been quite exciting, involving big (BIG) machinery and three days of blasting.  Yes, you read that right - BLASTING.  Huge drills, actual dynamite, ignition switches and explosions.  The explosions are damped by enormous rubber mats, but still there are big booms and flying dirt.  Exciting is definitely the word.  
+Buidling efforts have centered on our cabin in the Adirondacks.  Since we knew that many in our family would want to be there more during winter 2020, we started with a big upgrade to our driveway.  Until now this has been impassable during the winter months, requiring a snowhsoes to access the place.  We are also doing site work in preparation for a big expansion project in winter 2021.  The site work has been quite exciting, involving big (BIG) machinery and three days of blasting.  Yes, you read that right - BLASTING.  Huge drills, actual dynamite, ignition switches, fuses and explosions.  The explosions are damped by enormous rubber mats, but still there are big booms and flying dirt.  Exciting is definitely the word.  
 
 <img align="left" width="30%" src="/images/hiking.jpg" class="image-left"> 
 
@@ -42,12 +42,12 @@ Mitch has started hiking again in a big way.  Years ago we both started the jour
 <img align="left" width="30%" src="/images/st-tikhons-sunset.jpg" class="image-left"> 
 
 ## Serving
+In addition to Angel Flight service, Mitch is Vice President of our parish, and serves on the St. Tikhon's Seminary Board of Trustees.  Our company CatPrint is involved in several avenues of service, including being a corporate sponsor of RESOLVE of Rochester, taking the Polar Plunge every year to support Special Olympics (exept this year of course, but we'll get chilled next year) and supporting the Epilepsy Foundation's Chocolate Ball.  Jan took over as volunteer CFO at St. Tikhon's Seminary in late 2018 when the previous CFO had a medical emergency, and as of July 2020 was hired to fill this position for the next three years. She also is treasurer for the OCA Diocese of New York and New Jersey.  
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Ut enim ad minim veniam, quis nostrud exercitation ullamco laboris nisi ut aliquip ex ea commodo consequat. Duis aute irure dolor in reprehenderit in voluptate velit esse cillum dolore eu fugiat nulla pariatur. Excepteur sint occaecat cupidatat non proident, sunt in culpa qui officia deserunt mollit anim id est laborum.
 
 ## Arrivals and Departures
 
-+ Teddy ? Maggie
+Sadly, death has claimed a number of our loved ones in the past two years.  Our dear friend Brian Bueche, one of our groomsmen and a hiking buddy of Mitch's since 1976, succumbed to a heart attack in December 2019.  Jan's beloved cousin Mike Janik, after successful lung transplant surgery, contracted an infection and passed away in August 2019.   Maggie
 + Father Ken
 + Father David
 + Mike
