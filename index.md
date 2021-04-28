@@ -13,13 +13,13 @@ Can you dance during a pandemic?  Well, sure!  Even though planned competitions 
 
 ## Flying
 
-Flying, too, has been limited but not gone from our lives.  Mitch is now a part owner, with three other pilots, of two airplanes (So he owns...half a plane?) He has been able to serve folks in need of medical transportation with Angel Flights, has taken friends for much-needed breaks on day trips, and flown several trips to the Aidrondacks to hike and ski. He also is Jan's private transport service to her new job in Pennsylavania (more on this later.) 
+Mitch is now a part owner, with three other pilots, of two airplanes (So he owns...half a plane?) and he got his multi-engine rating back at the end of 2019.  During COVID he has been able to continue to serve folks in need of medical transportation with Angel Flights, and has now completed over 50 Angel Flight missions.  Also he has taken family and friends for much-needed breaks on day trips, and flown several trips to the Adirondacks to hike and ski. He also is Jan's private transport service to her new job in Pennsylavania, and to meetings in NYC (more on this later.) 
 
 <img align="right" width="30%" src="/images/catprint-factory-floor.jpg" class="image-right">
 
 ## Printing
-The good news about CatPrint is that in February 2020 we took possession of our very own facility, with over double the space of our previous quarters. The bad news is that in March 2020, sales plummeted to less than half of our pre-pandemic volume, and have remained very low for the last year.  Consequently we were forced to put over half our faithful employees on furlough. We are slowly rebuilding both our sales and our team.  Due to the hard work and dedication of our remaining employees, we have kept our spirits up and the company afloat.  Thanks to God for all things.
 
+The good news about CatPrint is that in February 2020 we took possession of our very own facility, with over double the space of our previous quarters. The bad news is that in March 2020, sales plummeted to less than half of our pre-pandemic volume, and have remained very low for the last year.  Consequently we were forced to put over half our faithful employees on furlough. We are slowly rebuilding both our sales and our team.  Due to the hard work and dedication of our remaining employees, we have kept our spirits up and the company afloat.  Thanks to God for all things.
 
 <img align="right" width="30%" src="/images/new-years-2020.jpg" class="image-right">
 
@@ -65,7 +65,7 @@ Congratulations to daughter-in-law Terry on her new position at Kickstarter as a
 
 Congratulations to son Isaac, (Terry's husband) on his promotion to Staff User Experience Manager at Google.  He manages a couple of different teams on two coasts who design how the world experiences Google. His previously heavy travel schedule of over six months per year was eliminated in 2020, one good side effect of COVID.
 
-Also congratulations to Paul and Isaac as founding members and managers of one of the largest and most highly rated gaming clubs in NYC - The Carcosa Club - with a several year waiting list just to get in.
+Also congratulations to Paul and Isaac as founding members and managers of one of the largest and highly rated gaming clubs in NYC - The Carcosa Club - with a several year waiting list just to get in.
 
 Many congratulations to our son Bill for starting his own metalworking business, Seiji Fabrications, in 2019, and keeping it afloat and growing during the last two years. 
 
