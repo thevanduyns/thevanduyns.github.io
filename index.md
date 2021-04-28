@@ -65,7 +65,7 @@ Congratulations to daughter-in-law Terry on her new position at Kickstarter as a
 
 Congratulations to son Isaac, (Terry's husband) on his promotion to Staff User Experience Manager at Google.  He manages a couple of different teams on two coasts who design how the world experiences Google. His previously heavy travel schedule of over six months per year was eliminated in 2020, one good side effect of COVID.
 
-Also congratulations to Paul and Isaac as founding members and managers of one of the largest and highly rated gaming clubs in NYC - The Carcosa Club - with a several year waiting list just to get in.
+Also congratulations to Paul and Isaac as founding members and managers of one of the largest and most highly rated gaming clubs in NYC - The Carcosa Club - with a several year waiting list just to get in.
 
 Many congratulations to our son Bill for starting his own metalworking business, Seiji Fabrications, in 2019, and keeping it afloat and growing during the last two years. 
 
