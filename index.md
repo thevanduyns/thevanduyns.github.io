@@ -53,7 +53,8 @@ Additionally (yes, pun intended, sorry) our CatPrint family has been expanded by
 
 
 ## Congratulations
-We ask you to join us in congratulating our family on their many accomplishments. Otherwise known as bragging on the kids. We are proud of them!  
+We ask you to join us in congratulating our family on their many accomplishments. Otherwise known as bragging on the kids. We are proud of them!
+
 Congratulations are first in order for our youngest family member, Luca, who started kindergarten this year.  It's been a weird way to start school but he is doing well.
 
 BIG congratulations to daughter-in-law Audrey - graduating from Fordham Law School with high honors, and passing the New York Sate Bar exam on her first sitting.  Wow.  She now works at a major law firm in NYC.
