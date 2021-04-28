@@ -34,7 +34,7 @@ Travelling?  What's THAT?  Well, since it's been over two years since we have co
 ## Building
 Buidling efforts have centered on our cabin in the Adirondacks.  Since we knew that many in our family would want to be there more during winter 2020, we started with a big upgrade to our driveway.  Until now this has been impassable during the winter months, requiring snowshoes to access the place.  We are also doing site work in preparation for a big expansion project in winter 2021.  The site work has been quite exciting, involving big (BIG) machinery and three days of blasting.  Yes, you read that right - BLASTING.  Huge drills, actual dynamite, ignition switches, fuses and explosions.  The explosions are damped by enormous rubber mats, but still there are big booms and flying dirt.  Exciting is definitely the word.  
 
-<img align="left" width="40%" src="/images/hiking.jpg" class="image-left"> 
+<img align="right" width="40%" src="/images/hiking.jpg" class="image-right"> 
 
 ## Hiking
 Mitch has started hiking again in a big way.  Years ago we both started the journey to being "Adirondack 46'ers," people who have hiked up 46 highest peaks in NY.  What with kids, work, and other life events, it's been years since any mountains were climbed.  This past year Mitch restarted this quest, and has now been up over half of these peaks.  He also climbed nine smaller mountains this winter - yes in the winter! - to become a Winter Lake Placid Niner.  Coffee the dog has been a good companion on many of these outings, and even has his own backpack now.  
