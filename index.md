@@ -19,7 +19,7 @@ Mitch is now a part owner, with three other pilots, of two airplanes (So he owns
 
 ## Printing
 
-The good news about CatPrint is that in February 2020 we took possession of our very own facility, with over double the space of our previous quarters. The bad news is that in March 2020, sales plummeted to less than half of our pre-pandemic volume, and have remained very low for the last year.  Consequently we were forced to put over half our faithful employees on furlough. We are slowly rebuilding both our sales and our team.  Due to the hard work and dedication of our remaining employees, we have kept our spirits up and the company afloat.  Thanks to God for all things.
+The good news about CatPrint is that in February 2020 we took possession of our very own 20,000 sq. ft. facility, with over double the space of our previous quarters. The bad news is that in March 2020, sales plummeted to less than half of our pre-pandemic volume, and have remained very low for the last year.  Consequently we were forced to put over half our faithful employees on furlough. We are slowly rebuilding both our sales and our team.  Due to the hard work and dedication of our remaining employees, we have kept our spirits up and the company afloat.  Thanks to God for all things.
 
 By the way we hope to see more of your Christmas Cards and Invitations printed by CatPrint.  Visit our website [www.catprint.com](https://www.catprint.com) today, and if you would like a "Family and Friends" discount just let us know.  We are proud that we are the highest rated online print company in the world.
 
@@ -37,13 +37,13 @@ Buidling efforts have centered on our cabin in the Adirondacks.  Since we knew t
 <img align="left" width="40%" src="/images/hiking.jpg" class="image-left"> 
 
 ## Hiking
-Mitch has started hiking again in a big way.  Years ago we both started the journey to being "Adirondack 46'ers," people who have hiked up all the mountains in New York which are over 4,000 feet high. (Note: four of these actually aren't over 4,000 feet due to surveying errors, but you still climb them.) What with kids, work, and other life events, it's been years since any mountains were climbed.  This past year Mitch restarted this quest, and has now been up over half of these peaks.  He also climbed nine smaller mountains this winter- yes in the winter! - to become a Lake Placid Niner.  Coffee the dog has been a good companion on these outings, and even has his own backpack now.  
+Mitch has started hiking again in a big way.  Years ago we both started the journey to being "Adirondack 46'ers," people who have hiked up 46 highest peaks in NY.  What with kids, work, and other life events, it's been years since any mountains were climbed.  This past year Mitch restarted this quest, and has now been up over half of these peaks.  He also climbed nine smaller mountains this winter - yes in the winter! - to become a Winter Lake Placid Niner.  Coffee the dog has been a good companion on many of these outings, and even has his own backpack now.  
 <img width="100%" src="/images/vanhovenburg-panaroma.jpg">
 
 <img align="left" width="30%" src="/images/st-tikhons-sunset.jpg" class="image-left"> 
 
 ## Serving
-In addition to Angel Flight service, Mitch is Vice President of our parish, and serves on the St. Tikhon's Seminary Board of Trustees.  Our company CatPrint is involved in several avenues of service, including being a corporate sponsor of RESOLVE of Rochester, taking the Polar Plunge every year to support Special Olympics (exept this year of course, but we'll get chilled next year) and supporting the Epilepsy Foundation's Chocolate Ball.  Jan took over as volunteer CFO at St. Tikhon's Seminary in late 2018 when the previous CFO had a medical emergency, and as of July 2020 was hired to fill this position for the next three years. She also is treasurer for the OCA Diocese of New York and New Jersey.  
+In addition to being an Angel Flight pilot, Mitch is Vice President of our parish, and serves on the St. Tikhon's Seminary Board of Trustees.  Our company CatPrint is involved in several avenues of service, including being a corporate sponsor of RESOLVE of Rochester, taking the Polar Plunge every year to support Special Olympics (exept this year of course, but we'll get chilled next year) and supporting the Epilepsy Foundation's Chocolate Ball.  Jan took over as volunteer CFO at St. Tikhon's Seminary in late 2018 when the previous CFO had a medical emergency, and as of July 2020 was hired to fill this position for the next three years. She also is treasurer for the OCA Diocese of New York and New Jersey.  
 
 
 ## Arrivals and Departures
