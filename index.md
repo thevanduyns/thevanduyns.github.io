@@ -1,14 +1,13 @@
-Once again we just didn't get around to writing a Christmas letter this year or last, so we decided to send out a Pascha Letter.  Pascha is the ancient Christian term for Easter, linking the crucifixion and resurrection of Jesus to its precursor, the Jewish Passover.  But even though we had an additional 5 weeks after western Easter to prepare, we still didn't get the letter written on time to print it, so here it is online!
+Once again we just didn't get around to writing a Christmas letter in either 2019 or 2020, so we decided to send out a Pascha Letter.  Pascha is the ancient Christian term for Easter, linking the crucifixion and resurrection of Jesus to its precursor, the Jewish Passover.  But even though we had an additional 5 weeks after western Easter to prepare, we still didn't get the letter written on time to print it, so here it is online!
 
-Its been a big couple of years for all of us, and I don't think we can keep straight what happened when, so here are the highlights organized by subject matter.
+Its been a big couple of years for all of us, for sure.  Because we can't keep straight what happened when, we offer here event highlights organized by subject matter.
 
-Before we begin, we will just say many thanks to all for your friendship, prayers, and support during the tough times, and sharing with us in the good times.
 
 <img align="left" width="30%" src="/images/dance-shot.jpg" class="image-left">
   
 ## Dancing
 
-Can you dance during a pandemic?  Well, sure!  Even though planned competitions were on hold, Jan did keep dancing, first with virtual sessions online and then in person with masks and other precautions. It was also possible to submit taped performances to a couple of virtual events, which kept the flame of competition alive. Soon we will be attending Jan's first event in almost two years, and are looking forward to getting moving again.  
+Can you dance during a pandemic?  Well, sure!  Even though planned competitions were on hold, Jan did keep dancing, first with virtual sessions online and then in person with masks and other precautions. It was also possible to submit taped performances to a couple of virtual events, which kept the flame of competition alive. Soon we will be attending Jan's first live event in almost two years, and after neck fusion in August 2019 and lumbar fusion in August 2020, she is looking forward to getting moving again.  
 
 <img align="left" width="30%" src="/images/IMG_0136.jpg" class="image-left">
 
@@ -54,11 +53,17 @@ Additionally (yes, pun intended, sorry) our CatPrint family has been expanded by
 
 
 ## Congratulations
+We ask you to join us in congratulating our family on their many accomplishments. Otherwise known as bragging on the kids. We are proud of them!  
+Congratulations are first in order for our youngest family member, Luca, who started kindergarten this year.  It's been a weird way to start school but he is doing well. 
+BIG congratulations to daughter-in-law Audrey - graduating from Fordham Law School with high honors, and passing the New York Sate Bar exam on her first sitting.  Wow. 
+Congratulations to son Paul, (Audrey's husband) on his new position at Google as a Drive Frontend Software Engineer. Last time we wrote a newsletter, he was still commuting to Boston for work.  Now he and Audrey are Manhattanites, living on 48th Street in the middle of the city.  They look forward to more big city life as the pandemic eases.
+Congratulations to daughter-in-law Terry on her new position at Kickstarter as a Senior Product Manager. Despite its national reputation Kickstarter is actually a pretty small company, and Terry is enjoying the work and the company very much. 
+Congratulations to son Isaac, (Terry's husband) on his promotion to Staff User Experience Manager at Google.  He manages a couple of diffent teams on two coast who design how the world experiences Google. His previously heavy travel schedule of over six months per year was eliminated in 2020, one good side effect of COVID.  
+Many congratulations to our son Bill for starting his own metalworking business, Seiji Fabrications, in 2019, and keeping it afloat and growing during the last two years.  
+And finally, congratulations to Matt Bueche, who married the beautiful and talented Nora in October 2020, and to godson Adam Shellard on his Mary 2020 marriage to Michelle, soon to be family medicine doctor here in Rochester.  Both were lovely outdoor occasions which brought much joy to all participants. 
 
-+ Paul
-+ Isaac
-+ Audrey
-+ Terry ?
-+ Adam and Michelle
-+ Weaver Kids
+We thank God for each of you being in our lives.  Please accept our heartfelt thanks to ALL of you for your friendship, prayers, and support during the tough times, and for sharing with us in the good times. With much love we say - Christ is Risen!  Indeed He is Risen!
+
+Mitch and Jan
+
 
