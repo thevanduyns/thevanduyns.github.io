@@ -26,11 +26,11 @@ Jan competed in an even bigger Dance Competition in Florida and came away with a
 
 Mitch, Paul and Jan attended a one year memorial service in August for Jan's cousin Mike, who left us last August due to complications of a lung transplant.  We miss him very much, but were pleased to spend time with Jan's brother and sister-in-law, cousins and friends of the family.
 
-<img align="left" width="30%" class="image-left" src="/images/nye-mountain.jpg">Mitch, Paul and Isaac bagged Street and Nye mountains in the ADK.  This was and was a tremendous slog and fun time, all in one.
+<img align="left" width="30%" class="image-left" src="/images/nye-mountain.jpg">Mitch, Paul and Isaac bagged Street and Nye mountains in the ADK.  This was a tremendous slog and fun time, all in one.
 
 Matt Bueche (son of Mitch's great friend Brian of blessed memory) and his bride Honora Fallon-Oben finally got to have a proper wedding and reception. They were officially married in 2020 at the height of COVID, but now we had THE PARTY.  It was a grand celebration, and good to be back with all the Bueches. We did miss Brian.
 
-Daughter Audrey was recruited by her former boss to join him at a new firm in NYC - what a compliment!  A tribute to her hard work and great accomplishments.  We are so proud of her.  [Audrey VanDuyn](https://www.bakermckenzie.com/en/people/v/van-duyn-audrey)
+Daughter [Audrey](https://www.bakermckenzie.com/en/people/v/van-duyn-audrey) was recruited by her former boss to join him at a his new firm in NYC - what a compliment!  A tribute to her hard work and great accomplishments.  We are so proud of her.  
 
 On a trip to NYC we visited the Carcosa gaming club, a huge 4000 sq foot operation in Brooklyn founded by Isaac, Paul and their friends.  It is the largest and most highly rated of its kind in the NYC area, with a massive waiting list of gamers trying to join. How these guys do this and continue to excel at Google is beyond us. We are bewildered and proud.  [The Carcosa Club](https://www.carcosaclub.com/)
 
