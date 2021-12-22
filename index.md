@@ -2,13 +2,11 @@ It's been a while since our Pascha letter, and Here we are another year gone by,
 
 ## Q1
 
-<img align="left" width="32%" class="image-left" src="/images/pitchoff.jpg">Mitch started the New Year's right by getting up at about 4:00 AM and hiking Pitchoff Mountain - a 1300 foot climb, to meet the Sunrise over the Adirondack high peaks. Jan stayed home and in bed.
-
-
+<img align="left" width="31%" class="image-left" src="/images/pitchoff.jpg">Mitch started the New Year's right by getting up at about 4:00 AM and hiking Pitchoff Mountain - a 1300 foot climb, to meet the Sunrise over the Adirondack high peaks. Jan stayed home and in bed.
 
 In February,  Mitch completed his 50th Angel Flight mission, and completed the Lake Placid 9'er Winter challenge.  Nine mountains in winter....
 
-Meanwhile Jan slogged along trying to get the St. Tikhon's Seminary accounts in order.  It's a een a challenge as the previous CFO had a stroke leaving lots of unknowns, and the Seminary board decided to put a new and very difficult to fundraising and accounting system in place.  Ugh!
+Meanwhile Jan slogged along trying to get the St. Tikhon's Seminary accounts in order.  It's a been a challenge as the previous CFO had a stroke leaving lots of unknowns, and the Seminary board decided to put a new and very difficult to fundraising and accounting system in place.  Ugh!
 
 ## Q2
 
@@ -38,9 +36,10 @@ On a trip to NYC we visited the Carcosa gaming club, a huge 4000 sq foot operati
 
 ## Q4 (or the biggest 3 months EVER)
 
-First big thing: those of you that know us well will almost certainly laugh but... we bought and moved into (yet another) house - still in the greater Rochester area. Don't say anything... no really, just don't.  We know we're silly.<img align="right" width="30%" class="image-right" src="/images/house.jpg">
+First big thing: those of you that know us well will almost certainly laugh but... we bought and moved into (yet another) house - still in the greater Rochester area. Don't say anything... no really, just don't.  We know we're silly.
 
-Why?  Our old house was great but at 120 years and counting, maintenance was getting to be a hobby, it was three floors to climb up and down, and it was 25 minutes to CatPrint.  Many may laugh at 25 minutes but we are more used to...five? Also the neighborhood while friendly and vibrant featured lots of college students and had an uncertain future. Our new neighborhood is quieter and more stable.
+Why?  <img align="right" width="40%" class="image-right" src="/images/house.jpg">Our old house was great but at 120 years and counting, maintenance was getting to be a hobby,
+it was three floors to climb up and down, and it was 25 minutes to CatPrint.  Many may laugh at 25 minutes but we are more used to...five? Also the neighborhood while friendly and vibrant featured lots of college students and had an uncertain future. Our new neighborhood is quieter and more stable.
 
 And Why Not?  After 42 years of marriage we finally found a house that we both simply adore.  All on one floor, big enough that Mitch doesn't bump his head or feel cramped, but cozy enough for Jan's cottage sensibilities.  Its a lovely 1968 U-Shaped ranch with a pool in the center court yard.  It's been beautifully upgraded into a modern but still classic house.
 
@@ -59,6 +58,6 @@ And to finish up November in style (fifth big thing) Jan and Mitch both came dow
 
 Sixth big thing: Mitch's consulting gig in the UK had a rollout of an application aiming to help British local governments map out their journey to carbon neutrality.  Over 400 government agencies attended (!), and the software was well received, but Mitch, working through COVID, was...wait for it... exhausted.
 
-Last big thing: Mitch's aircraft partnership put their beloved Diamond 42 on the block, as everyone is ready to move up to a bigger, faster plane.  So we may be buying an airplane all our own.  There's an old Tom T. Hall song that we love, called ["Faster Horses, Younger Women, Older Whiskey, More Money."](https://youtu.be/vnvMcX95G20?t=37) Mitch's version seems to be "Faster Airplanes..." Not sure where the younger women come in.  <iframe width="560" height="315" src="https://www.youtube.com/embed/vnvMcX95G20?start=37" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+Last big thing: Mitch's aircraft partnership put their beloved Diamond 42 on the block, as everyone is ready to move up to a bigger, faster plane.  So we may be buying an airplane all our own.  There's an old Tom T. Hall song that we love, called ["Faster Horses, Younger Women, Older Whiskey, More Money."](https://youtu.be/vnvMcX95G20?t=37) Mitch's version seems to be "Faster Airplanes..." Not sure where the younger women come in.
 
 We are looking forward to another big Christmas celebration for 10+ people, and a New Year's carol singing party to which ALL OF YOU are invited.  God grant us peace, health and the love of family and friends in 2022. God bless each of you in the New Year.
