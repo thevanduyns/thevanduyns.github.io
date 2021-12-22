@@ -6,7 +6,7 @@ It's been a while since our Pascha letter, and Here we are another year gone by,
 
 In February,  Mitch completed his 50th Angel Flight mission, and completed the Lake Placid 9'er Winter challenge.  Nine mountains in winter....
 
-Meanwhile Jan slogged along trying to get the St. Tikhon's Seminary accounts in order.  It's a been a challenge as the previous CFO had a stroke leaving lots of unknowns, and the Seminary board decided to put a new and very difficult to fundraising and accounting system in place.  Ugh!
+Meanwhile Jan slogged along trying to get the St. Tikhon's Seminary accounts in order.  It's a been a challenge as the previous CFO had a stroke leaving lots of unknowns, and the Seminary board decided to put a new and very difficult (impossible?) to use fundraising and accounting system in place.  Ugh!
 
 ## Q2
 
