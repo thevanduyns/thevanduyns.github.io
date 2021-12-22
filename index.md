@@ -16,7 +16,7 @@ A *friend* (um.. define friend) of Mitch's referred him to a company in the UK w
 
 Mitch bagged a couple more of the Adirondack 46 mountains, with Paul along for the trip up TableTop mountain.
 
-Bill Hicks continued to turn out beautiful pieces of metal work - stairs, railings and fences and the like from his studio in Seattle.
+Bill Hicks continued <img align="right" width="40%" class="image-right" src="/images/seijafab.png"> to turn out beautiful pieces of metal work - stairs, railings and fences and the like from his [studio in Seattle](https://spark.adobe.com/page/dZz7Mdclo3jS4/).
 
 ## Q3
 
