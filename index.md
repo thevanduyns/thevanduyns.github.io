@@ -2,7 +2,7 @@ It's been a while since our Pascha letter, and Here we are another year gone by,
 
 ## Q1
 
-<img align="left" width="30%" class="image-left" src="/images/pitchoff.jpg">Mitch started the New Year's right by getting up at about 4:00 AM and hiking Pitchoff Mountain - a 1300 foot climb, to meet the Sunrise over the Adirondack high peaks. Jan stayed home and in bed.
+<img align="left" width="32%" class="image-left" src="/images/pitchoff.jpg">Mitch started the New Year's right by getting up at about 4:00 AM and hiking Pitchoff Mountain - a 1300 foot climb, to meet the Sunrise over the Adirondack high peaks. Jan stayed home and in bed.
 
 
 
@@ -28,7 +28,7 @@ Jan competed in an even bigger Dance Competition in Florida and came away with a
 
 Mitch, Paul and Jan attended a one year memorial service in August for Jan's cousin Mike, who left us last August due to complications of a lung transplant.  We miss him very much, but were pleased to spend time with Jan's brother and sister-in-law, cousins and friends of the family.
 
-<img align="left" width="10%" class="image-left" src="/images/nye-mountain.jpg">Mitch, Paul and Isaac bagged Street and Nye mountains in the ADK.  This was and was a tremendous slog and fun time, all in one.
+<img align="left" width="15%" class="image-left" src="/images/nye-mountain.jpg">Mitch, Paul and Isaac bagged Street and Nye mountains in the ADK.  This was and was a tremendous slog and fun time, all in one.
 
 Matt Bueche (son of Mitch's great friend Brian of blessed memory) and his bride Honora Fallon-Oben finally got to have a proper wedding and reception. They were officially married in 2020 at the height of COVID, but now we had THE PARTY.  It was a grand celebration, and good to be back with all the Bueches. We did miss Brian.
 
