@@ -2,7 +2,7 @@ It's been a while since our Pascha letter, and Here we are another year gone by,
 
 ## Q1
 
-<img align="left" width="31%" class="image-left" src="/images/pitchoff.jpg">Mitch started the New Year's right by getting up at about 4:00 AM and hiking Pitchoff Mountain - a 1300 foot climb, to meet the Sunrise over the Adirondack high peaks. Jan stayed home and in bed.
+<img align="left" width="40%" class="image-left" src="/images/pitchoff.jpg">Mitch started the New Year's right by getting up at about 4:00 AM and hiking Pitchoff Mountain - a 1300 foot climb, to meet the Sunrise over the Adirondack high peaks. Jan stayed home and in bed.
 
 In February,  Mitch completed his 50th Angel Flight mission, and completed the Lake Placid 9'er Winter challenge.  Nine mountains in winter....
 
@@ -12,7 +12,7 @@ Meanwhile Jan slogged along trying to get the St. Tikhon's Seminary accounts in 
 
 A *friend* (um.. define friend) of Mitch's referred him to a company in the UK working hard to develop tools to get our planetary problems such as global climate change and human exploitation under control.  They desperately needed a Chief Technical Officer to guide them, so back to work he went.  If you want to read a really scary book (with a happy ending) on the subject checkout *Ministry For The Future* by Kim Stanley Robinson.
 
-<img align="right" width="30%" class="image-right" src="/images/bahamas.jpg"><img align="left" width="15%" class="image-left" src="/images/flamingo-rama.jpg">Jan had a Dance Comp in Orlando, where she won the Pro-Am Scholarship and also took **Top Student**.  Not bad at all.  Mitch flew down for the last day and the awards, then whisked us off to  Harbor Island in the Bahamas.  Pink sand beaches and lots of chickens....What a great trip!
+<img align="right" width="30%" class="image-right" src="/images/bahamas.jpg"><img align="left" width="30%" class="image-left" src="/images/flamingo-rama.jpg">Jan had a Dance Comp in Orlando, where she won the Pro-Am Scholarship and also took **Top Student**.  Not bad at all.  Mitch flew down for the last day and the awards, then whisked us off to  Harbor Island in the Bahamas.  Pink sand beaches and lots of chickens....What a great trip!
 
 Mitch bagged a couple more of the Adirondack 46 mountains, with Paul along for the trip up TableTop mountain.
 
@@ -26,7 +26,7 @@ Jan competed in an even bigger Dance Competition in Florida and came away with a
 
 Mitch, Paul and Jan attended a one year memorial service in August for Jan's cousin Mike, who left us last August due to complications of a lung transplant.  We miss him very much, but were pleased to spend time with Jan's brother and sister-in-law, cousins and friends of the family.
 
-<img align="left" width="15%" class="image-left" src="/images/nye-mountain.jpg">Mitch, Paul and Isaac bagged Street and Nye mountains in the ADK.  This was and was a tremendous slog and fun time, all in one.
+<img align="left" width="30%" class="image-left" src="/images/nye-mountain.jpg">Mitch, Paul and Isaac bagged Street and Nye mountains in the ADK.  This was and was a tremendous slog and fun time, all in one.
 
 Matt Bueche (son of Mitch's great friend Brian of blessed memory) and his bride Honora Fallon-Oben finally got to have a proper wedding and reception. They were officially married in 2020 at the height of COVID, but now we had THE PARTY.  It was a grand celebration, and good to be back with all the Bueches. We did miss Brian.
 
@@ -38,7 +38,7 @@ On a trip to NYC we visited the Carcosa gaming club, a huge 4000 sq foot operati
 
 First big thing: those of you that know us well will almost certainly laugh but... we bought and moved into (yet another) house - still in the greater Rochester area. Don't say anything... no really, just don't.  We know we're silly.
 
-Why?  <img align="right" width="40%" class="image-right" src="/images/house.jpg">Our old house was great but at 120 years and counting, maintenance was getting to be a hobby,
+Why?  <img align="right" width="50%" class="image-right" src="/images/house.jpg">Our old house was great but at 120 years and counting, maintenance was getting to be a hobby,
 it was three floors to climb up and down, and it was 25 minutes to CatPrint.  Many may laugh at 25 minutes but we are more used to...five? Also the neighborhood while friendly and vibrant featured lots of college students and had an uncertain future. Our new neighborhood is quieter and more stable.
 
 And Why Not?  After 42 years of marriage we finally found a house that we both simply adore.  All on one floor, big enough that Mitch doesn't bump his head or feel cramped, but cozy enough for Jan's cottage sensibilities.  Its a lovely 1968 U-Shaped ranch with a pool in the center court yard.  It's been beautifully upgraded into a modern but still classic house.
@@ -47,10 +47,10 @@ Please come and visit!  With five bedrooms and five bathrooms, our motto of "The
 
 And thanks to our good friend and frequent realtor Susan Glenz, we were able to sell the old house, quick, smart and for a great price.  
 
-<img align="left" width="15%" class="image-left" src="/images/dogs.jpeg">
+<img align="left" width="30%" class="image-left" src="/images/dogs.jpeg">
 Second big thing: During October we welcomed a new Boxer dog into our home. Pretty Girl is a sweet 8 year old lady who comes to us from an Amish puppy mill. She is a fine companion for our other Boxer Coffee.
 
-<img align="right" width="15%" class="image-right" src="/images/rolling-stones.jpeg">Third big thing: Mitch flew us to Detroit, where we stayed with our dear friends Dave and Kathy Lester and went to probably the last Rolling Stones concert of... ever.  And Mitch finally got to have dinner at Joe Muer's Restaurant, which Jan has been telling him about for almost 50 years. With a century long reputation, this place kept John Kennedy waiting in line....but we got a reservation!
+<img align="right" width="30%" class="image-right" src="/images/rolling-stones.jpeg">Third big thing: Mitch flew us to Detroit, where we stayed with our dear friends Dave and Kathy Lester and went to probably the last Rolling Stones concert of... ever.  And Mitch finally got to have dinner at Joe Muer's Restaurant, which Jan has been telling him about for almost 50 years. With a century long reputation, this place kept John Kennedy waiting in line....but we got a reservation!
 
 Fourth big thing: the new house was perfect for a vast Thanksgiving gathering, which included sons Isaac and Paul, Daughter in Law Terry, (Audrey would have loved to come but sadly could not make it), godson Stefan Cobeli, godchildren Joe and Kelly Kirtland and their wonderful young'uns Teddy and Maggie, and Terry's parents Ruth and Jerry Callan.  Not only did we have a wonderful Thanksgiving dinner, but the pool stayed open and warm, so we could swim in the snowfall.
 
